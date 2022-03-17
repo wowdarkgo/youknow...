@@ -1,2 +1,3 @@
 # youknow...
 cv change the world!
+当收藏夹用了、clone是人类的本质。
